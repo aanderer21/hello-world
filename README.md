@@ -1,2 +1,4 @@
 # hello-world
-tryna learn how to use things
+
+
+yo peeps I'm Arielle and idk what's going on but I have a cat
